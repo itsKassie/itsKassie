@@ -5,7 +5,6 @@
 <p align="center">
   <img src="32d3b06d62592f9e80f6aa783727cb45.gif" width="500">
 </p>
-
 <br><br>
 
 <img src="cd4addb03dbfb01b2fe3072990e42ea6.gif" width="35">
