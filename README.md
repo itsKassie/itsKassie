@@ -1,6 +1,3 @@
-<p align="center">
-  <img src="32d3b06d62592f9e80f6aa783727cb45.gif" width="500">
-</p>
 <div align="center">
 <img src="aa13207e6e2903f972d5fdaaab0a5396.gif" width="650">
 <p align="center">
