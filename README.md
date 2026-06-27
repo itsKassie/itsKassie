@@ -2,10 +2,11 @@
 
 <img src="aa13207e6e2903f972d5fdaaab0a5396.gif" width="650">
 
-<p align="center">
-  <img src="32d3b06d62592f9e80f6aa783727cb45.gif" width="500">
-</p>
 <br><br>
+
+୨୧ ✦ ૮ ˶ᵔ ᵕ ᵔ˶ ა ✦ ୨୧
+
+<br>
 
 <img src="cd4addb03dbfb01b2fe3072990e42ea6.gif" width="35">
 
@@ -15,8 +16,16 @@
 
 <img src="cd4addb03dbfb01b2fe3072990e42ea6.gif" width="35">
 
+<br>
+
+♡ ⋆ ୨୧ ⋆ ♡
+
 <br><br>
 
 <img src="5e1431d1e02747d8309109185f8da2402-ezgif.com-video-to-gif-converter.gif" width="500">
+
+<br><br>
+
+꒰ა ☆ ໒꒱
 
 </div>
