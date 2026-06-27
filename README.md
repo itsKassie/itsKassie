@@ -5,7 +5,6 @@
 </p>
   <br><br>
 <img src="cd4addb03dbfb01b2fe3072990e42ea6.gif" width="35">
-
 > *"I'm ridiculously lazy when it comes to making Pony skins.*  
 > *I love chatting, so feel free to say hi!*  
 > *I'm friendly, don't be shy. ♡"*
